@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Emeto09
+- 👋 Hi, I’m @Emeto Prosper
 - 👀 I’m interested in ...Tech
 - 🌱 I’m currently learning ...Electronic System Engineering Technology
 - 💞️ I’m looking to collaborate on ...
